@@ -1,0 +1,1 @@
+![tradusil](img/tradusil.png)
